@@ -2,7 +2,7 @@
 # NOVEL
 
 🦅 
-##
+## Tutorial to setup
 
 1) u need to open the executable files named Novel Token Grabber.exe
 2) u need to put your discord webhook on "webhook icon"
