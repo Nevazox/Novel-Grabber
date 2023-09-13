@@ -15,7 +15,7 @@
 
 ## Tiktok
 
-- [@azuki.dxb](https://tiktok.com/azuki.dxb)
+- [@Nevazox](https://www.tiktok.com/@nevazox?_t=8fetJoHS7ea&_r=1)
 
 
 ![Logo](https://static.vecteezy.com/system/resources/previews/001/203/829/non_2x/eagle-logo-png.png)
